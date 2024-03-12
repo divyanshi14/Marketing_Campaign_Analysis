@@ -19,3 +19,7 @@ To improve the performance of deal purchases, we recommend the following actions
 
 ### **CONCLUSION**
 In conclusion, by understanding the factors that influence deal purchases, focusing on the best-performing products, and improving the customer experience, companies can increase revenue and improve the performance of deal purchases. With the right strategies and tactics, deal purchases can become a significant source of revenue and growth for the company.
+
+
+https://github.com/divyanshi14/Marketing_Campaign_Analysis/assets/73298718/5e5de0c1-1704-4953-a7a0-d1619f06fba8
+
